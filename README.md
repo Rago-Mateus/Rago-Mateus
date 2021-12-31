@@ -1,0 +1,3 @@
+Hi, I’m @Rago-Mateus, I'm 35 years old, married and have two naughty kids! My name is Mateus (PT), the pronunciation in english its like "MATH" + "yooz" (/ˈmæθjuː/), but usually my friends callme Rago.
+I’m interested in economy, software developing, spacial science, physis quantics or everything about tecnologies. I'm graduated in Economic Science and I'm freshemen in Software Engenier. Actually I'm IT Manager and Planning Manager in a building construction named Brio Incorporadora in Brazil, São Paulo.
+I’m currently have basic in Python, Html e CS. I'm learning JavaScript...I really like to learn (and apply) new technologies.
